@@ -92,9 +92,3 @@ A few times I've been around that track
 So it's not just gonna happen like that
 'Cause I ain't no Hollaback Girl
 I ain't no Hollaback Girl
-
-[Refrain]
-Ooh, this my shit, this my shit
-Ooh, this my shit, this my shit
-Ooh, this my shit, this my shit
-Ooh, this my shit, this my shit
